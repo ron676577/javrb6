@@ -27,4 +27,4 @@
 结语  
 通过选择正规的平台观看日本AV资源，观众能够享受高清、无广告、流畅的影片播放体验，同时保障个人隐私与数据安全。这样的平台为你带来最好的观影体验。  
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/ron676577/javrb6 )</span>
